@@ -1,0 +1,2 @@
+# Second-Capstone-Group-19
+Team lead  Alabi Ololade Mariam SH-IT-0064483 Third section Assistant Team lead Ikpa Precious SH-0003613 sixth section Team members Uchechukwu Ekemezie SH-IT-0088588 first section Osita Anyaorah  SH-IT-0078075 2nd section Jonathan Edwin SH-IT-0126065 fourth section Eghosa Omuemu SH-IT-0104507 fifth section Ojuade Mutiyat SH-IT-0043007 7th section  Chris Nwobike SH-IT-0008415 Alebiosu Taiwo SH-IT-0017237 Adetayo Ayodeji  SH-IT-0090538
